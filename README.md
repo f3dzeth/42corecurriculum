@@ -1,0 +1,1 @@
+# 42corecurriculum
